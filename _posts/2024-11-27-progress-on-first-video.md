@@ -15,3 +15,7 @@ Just today in the morning it doesn't feel that itchy anymore, also my voice soun
 However because of that long break, enunciating things is going to become difficult again, keeping the rhythm, pronouncing the right sounds *sigh*. I just have to accept that there was nothing I could do and deal with what I have at hand (I tried to do stuff while being sick and I couldn't).
 
 **The next days I'll be updating this entry and write my progress on the video.** When I feel I'm good to go and I start dubbing again, the dubbing is going to take *exactly 2 weeks*. During this time I also have to figure out the thumbnail. I've been sketching some ideas, but I still need to brainstorm more, because I want to make three thumbnails in order to have quick replacements in the case that the first one flops.
+
+## November 29th, 2024
+Today I started to do the dub again. I was a little slow because of that long break, but overall I had no problem. I am happy that I am able to do this again :)
+**Lines: 730/1114.**
