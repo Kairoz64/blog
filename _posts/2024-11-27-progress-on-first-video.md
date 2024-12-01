@@ -19,3 +19,7 @@ However because of that long break, enunciating things is going to become diffic
 ## November 29th, 2024
 Today I started to do the dub again. I was a little slow because of that long break, but overall I had no problem. I am happy that I am able to do this again :)
 **Lines: 730/1114.**
+
+## November 30th, 2024
+I'm still slow, but I am able to achieve a *decent* pronunciation of the lines even after that long break. That's good, because I thought I had to relearn how to pronounce things all over again, that's a relief.
+**Lines: 760/1114.**
