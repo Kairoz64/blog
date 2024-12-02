@@ -23,3 +23,7 @@ Today I started to do the dub again. I was a little slow because of that long br
 ## November 30th, 2024
 I'm still slow, but I am able to achieve a *decent* pronunciation of the lines even after that long break. That's good, because I thought I had to relearn how to pronounce things all over again, that's a relief.
 **Lines: 760/1114.**
+
+## December 1st, 2024
+Today I was waaaay faster. Recording lines is getting easy.
+**Lines: 791/1114.**
