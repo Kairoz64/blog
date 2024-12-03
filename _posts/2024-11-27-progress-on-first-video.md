@@ -27,3 +27,7 @@ I'm still slow, but I am able to achieve a *decent* pronunciation of the lines e
 ## December 1st, 2024
 Today I was waaaay faster. Recording lines is getting easy.
 **Lines: 791/1114.**
+
+## December 2nd, 2024
+Things were hard today. But I made it.
+**Lines: 823/1114.**
