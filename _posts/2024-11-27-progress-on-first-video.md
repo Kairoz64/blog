@@ -35,3 +35,7 @@ Things were hard today. But I made it.
 ## December 4th, 2024
 Mmm... I forgot to post yesterday, but I haven't stopped working. Yesterday I had to work on a section that didn't require me pronouncing some lines and I only had to translate it. So as a result there was huge progress in these two days.
 **Lines: 921/1114.**
+
+## December 5th, 2024
+Today enouncing the lines was extremely difficult. Sometimes days like this one happens. My theory is that my brain is still trying to figure out how the rhythm of the English language works, but at the end I was able to come through.
+**Lines: 952/1114.**
