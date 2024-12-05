@@ -31,3 +31,7 @@ Today I was waaaay faster. Recording lines is getting easy.
 ## December 2nd, 2024
 Things were hard today. But I made it.
 **Lines: 823/1114.**
+
+## December 4th, 2024
+Mmm... I forgot to post yesterday, but I haven't stopped working. Yesterday I had to work on a section that didn't require me pronouncing some lines and I only had to translate it. So as a result there was huge progress in these two days.
+**Lines: 921/1114.**
