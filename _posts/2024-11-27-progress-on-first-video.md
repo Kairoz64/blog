@@ -43,3 +43,7 @@ Today enouncing the lines was extremely difficult. Sometimes days like this one 
 ## December 6th, 2024
 Today was a bit easier compared to yesterday, but I'm not entirely convinced with the end result. There's really nothing I can do though. I just have to accept that for a while I'm going to have an accent and there's going to be some weirdness in my speech. For now, the only thing that matters is that I am understandable. I hope someday there is a day when I can watch the video and have a good laugh at how funny I sound lol. 
 **Lines: 980/1114.**
+
+## December 7th, 2024
+I'm getting close.
+**Lines: 1012/1114.**
