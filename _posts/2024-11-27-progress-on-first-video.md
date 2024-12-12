@@ -51,3 +51,27 @@ I'm getting close.
 ## December 9th, 2024
 Closer.
 **Lines: 1072/1114.**
+
+## December 11th, 2024
+**Lines: 1114/1114.**
+
+Yesterday I *rendered* the video.
+
+After 2 months working on dubbing the video, it is finally *over*.
+It is a little bit late at night right now and I feel a bit tired, but there's a lot I want to say.
+
+While I was doing the dub, I decided I wanted to add an extra thing to the video. It is the *MD5 checksum* of my very *first video* on YouTube, **the one I made when I was 12**. After several years, I still have the original wmv file in my hard drive, something that you can't get by just downloading the video from YouTube.
+
+I hid that MD5 checksum in the English dub, and decided to hid it in the original video in Spanish too, so I had to re-render it.
+
+In total it took 6 hours to render both videos, 3 hours each. Man, sometimes I thought my laptop was going to burn itself. I hope there's a day when I can put that MD5 in good use.
+
+I was feeling tempted to go back and re-do the first lines in the dub, because I knew those first lines probably are not the best, after all... those are the ones I made at the very beginning when I still didn't know how I was going to dub the whole thing. And I mean is the intro of the video... one of the most important parts if I want people to keep watching.
+
+But at the end, I decided that I have to let it go, otherwise, I'll keep wanting to make things perfect and never releasing the video. 
+
+*And for my own good I also need a break.*
+
+So, what's left is the thumbnails.
+
+I'll post some drawings tomorrow.
