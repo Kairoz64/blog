@@ -75,3 +75,41 @@ But at the end, I decided that I have to let it go, otherwise, I'll keep wanting
 So, what's left is the thumbnails.
 
 I'll post some drawings tomorrow.
+
+## December 16th, 2024
+"Tomorrow" hehehe.
+
+I got a bit distracted, that's why I'm posting right now.
+Here are some drawings I made (not all of them).
+
+[![Thumbnails 1](https://i.postimg.cc/T3b7FtkX/IMG-20241216-180610.jpg)](https://i.postimg.cc/T3b7FtkX/IMG-20241216-180610.jpg){:.glightbox}
+[![Thumbnails 2](https://i.postimg.cc/T3b7FtkX/IMG-20241216-180610.jpg)](https://i.postimg.cc/T3b7FtkX/IMG-20241216-180610.jpg){:.glightbox}
+[![Thumbnails 3](https://i.postimg.cc/NFVDPXmM/IMG-20241216-180706.jpg)](https://i.postimg.cc/NFVDPXmM/IMG-20241216-180706.jpg){:.glightbox}
+[![Thumbnails 4](https://i.postimg.cc/rF0QRh2t/IMG-20241216-180729.jpg)](https://i.postimg.cc/rF0QRh2t/IMG-20241216-180729.jpg){:.glightbox}
+[![Thumbnails 5](https://i.postimg.cc/bw1g3sJy/IMG-20241216-180801.jpg)](https://i.postimg.cc/bw1g3sJy/IMG-20241216-180801.jpg){:.glightbox}
+
+I could spend a lot of time explaining what I'm aiming at with the thumbnail, but it's better that I keep it short.
+
+I think **the thumbnail must describe accurately what the video is about**. Several times I thought about picking some highlight that happens in the middle of the video, but at the end I decided that I should represent something that happens at the very beginning. The reason is that you have to watch *half an hour* before you are in the middle of the video. That's waaaay too long to fulfill the "promise" you made in the thumbnail.
+
+The alternative is to make *something that represents the video as a whole*. But I really really prefer to make *a thumbnail that shows something you can find at the very beginning of the video*.
+
+The ideal scenario in my opinion is a thumbnail that has *both* attributes, and that means, the video itself must be structured in a certain way.
+
+The other thing is that the thumbnail must be kind of unexpected, because if something is unexpected, it immediately keeps your attention.
+
+Now, I don't know a lot of ways to do that. The only two ways I know are:
+1. Breaking a pattern, which keeps attention for a short amount of time, because you are surprised.
+2. Making an interesting question, which keeps attention for a long amount of time because of curiosity.
+
+Oops! I think I rambled a bit long about thumbnails hahaha.
+
+Anyway, after thinking a lot, I decided I'm making the thumbnails in picture 4. I have no idea if they are effective, but I have to make them if I want to know that.
+
+But you see... *I already made them*.
+
+In fact, I only have to make the videos public.
+
+...
+
+Tomorrow in the morning when everyone is awake.
